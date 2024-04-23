@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **akshitjha172@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1mgMY7PmV1901GQzDa6ObnHLUswl9tT9X/edit?usp=sharing&ouid=108855133731289956790&rtpof=true&sd=true](https://docs.google.com/document/d/1mgMY7PmV1901GQzDa6ObnHLUswl9tT9X/edit?usp=sharing&ouid=108855133731289956790&rtpof=true&sd=true)
+- 📄 Know about my experiences [My Resume]([https://docs.google.com/document/d/1mgMY7PmV1901GQzDa6ObnHLUswl9tT9X/edit?usp=sharing&ouid=108855133731289956790&rtpof=true&sd=true])
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
