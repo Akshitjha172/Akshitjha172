@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **akshitjha172@gmail.com**
 
-- 📄 Know about my experiences [https://shorturl.at/dnxJX]([https://shorturl.at/dnxJX])
+- Know about my experiences [https://shorturl.at/dnxJX](https://shorturl.at/dnxJX)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
